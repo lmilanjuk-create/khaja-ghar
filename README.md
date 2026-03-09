@@ -1,1 +1,0 @@
-# khaja-ghar
